@@ -1,1 +1,1 @@
-# PT_Boga
+# buga-eterna-sentosa
